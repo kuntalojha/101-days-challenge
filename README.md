@@ -1,9 +1,4 @@
 # 101 Days Challenge
-
-
-That sounds like a well-rounded and ambitious 101-day challenge! Here's a breakdown of how you might structure and approach each of your goals:
-
-# 101 Days Challenge
 Exercise (15 minutes):
 
 Choose a form of exercise that you enjoy and can sustain for 15 minutes daily. It could be brisk walking, jogging, yoga, or a quick home workout routine.
